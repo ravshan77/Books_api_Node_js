@@ -1,0 +1,1 @@
+reade filda muhim malumot bor
